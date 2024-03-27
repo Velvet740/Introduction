@@ -3,3 +3,5 @@
 🥇 I am currently learning coding
 🤝 I am looking to collaborate on interesting projects
 ✍️ How to reach me: <!-- email: dipanjub@gmail.com -->
+:smiling woman: Pronouns: She/her
+:lightening: Fun fact: I love dancing.
