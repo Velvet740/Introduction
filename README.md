@@ -4,4 +4,4 @@
 🤝 I am looking to collaborate on interesting projects   
 ✍️ How to reach me: <!-- email: dipanjub@gmail.com -->    
 :woman: Pronouns: She/her    
-:sparkling_heart: Fun fact: I love dancing :performing_arts: and yoga :lotus_position: and I have other hobbies.
+:sparkling_heart: Fun fact: I love dancing :performing_arts: and yoga :lotus_position:. I have other hobbies :high_brightness: too.
